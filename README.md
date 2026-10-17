@@ -1,0 +1,1 @@
+I am an author of the book Archaeology of the Gospels, available on the Print-on-Demand program on Amazon in 14 countries. The book discusses the newest archaeological discoveries made in the Holy Land that confirm the truth of the Gospels. 
